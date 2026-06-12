@@ -8,7 +8,7 @@
 
 > One question in. Complete research out.
 
-**Top 10** at the **YC × AWS** hackathon.
+**Top 4** at the **YC × AWS** hackathon.
 
 ---
 
